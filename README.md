@@ -1,3 +1,3 @@
-# Sana01
-Крамар Денис Олексійович 
-deniskramar07@gmail.com
+# Крамар Денис Олексійович
+
+**Email**: ipz243_kdo@student.ztu.edu.ua
